@@ -9,7 +9,8 @@
 
 ###
 
-<img align="right" height="150" src="https://i.gifer.com/NLdi.gif"  />
+<img align="right" height="150" src="![image](https://github.com/Daggy2002/Daggy2002/assets/116206860/4ae22948-a83b-4a5b-aae3-07c87e5e31e1)
+"  />
 
 ###
 
